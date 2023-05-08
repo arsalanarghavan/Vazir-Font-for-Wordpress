@@ -1,0 +1,2 @@
+# Vazir-Font-for-Wordpress
+ 
